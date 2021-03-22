@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning buisness.
 - 🤑 I’m looking to collaborate on a partnership.
 - 📫 you can send inquiries to CoinSenate@gmail.com
-- 📝 I recently purchased this .com for 40k and was looking to create a crypto platform.
+- 📝 I recently purchased this .com for 40k and was looking for a partner or partners to help me create this platform.
 
 
 <!---
